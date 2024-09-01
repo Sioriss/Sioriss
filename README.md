@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sioriss
-- 👀 I’m interested in dota 2
+- 👀 I’m interested in dota 2,watch films,development of fine motor skills and sims
 - 🌱 I’m currently learning on the programmer
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me 
